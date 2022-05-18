@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @honeythedirtyhippie
-- 👀 I’m interested in small business tech.
+- 👀 I’m interested in business tech (mostly logistics).
 - 🌱 I’m currently learning foundations on theodinproject.
 - 💞️ I’m looking to collaborate on not being poor.
 - 📫 How to reach me anonthesam@protonmail.com
